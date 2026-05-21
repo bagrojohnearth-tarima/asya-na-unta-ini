@@ -1,1 +1,0 @@
-# asya-na-unta-ini
